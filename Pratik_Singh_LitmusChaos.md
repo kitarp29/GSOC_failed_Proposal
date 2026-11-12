@@ -780,8 +780,6 @@ I would be interested to take up tasks related to the latest Chaos Cloud the com
 
 **Name:**  Pratik Singh
 
-**Email:**  <a href="mailto:56778773+kitarp29@users.noreply.github.com">56778773+kitarp29@users.noreply.github.com</a>
-
 **LinkedIn:** [https://www.linkedin.com/in/kitarp29/](https://www.linkedin.com/in/kitarp29/)
 
 **GitHub:** [https://github.com/kitarp29](https://github.com/kitarp29)
